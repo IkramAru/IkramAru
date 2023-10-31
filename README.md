@@ -4,4 +4,4 @@
 - 📫 How to reach me ... (don't yet)
 
 help.
-- ![walfiee smol ame](https://github.com/IkramAru/IkramAru/assets/143063289/79b1277b-b87c-4a0a-85b7-7475b135e37e)
+![amelia watson derp](https://github.com/IkramAru/IkramAru/assets/143063289/1ba9879c-e3e2-4ddc-9221-eaf649dbd14a)
