@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ikram!
 - 👀 I’m interested in designing HTML CSS
-- 🌱 I’m currently learning.
+- 🌱 I’m currently learning on how to be a front-end developer.
 - 📫 How to reach me ... (don't yet)
 
 help.
