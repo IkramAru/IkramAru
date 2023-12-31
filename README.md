@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning on how to be a front-end developer.
 - 📫 How to reach me ... (don't yet)
 
-help.
+h e l p .
 ![amelia watson derp](https://github.com/IkramAru/IkramAru/assets/143063289/1ba9879c-e3e2-4ddc-9221-eaf649dbd14a)
